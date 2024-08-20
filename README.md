@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @cookiepi-on-yt
-- 👀 I’m interested in vtubing
-- 🌱 I’m currently learning school
-- 💞️ I’m looking to collaborate on ...
+- 👋 hi, I’m @cookiepi-on-yt
+- 👀 im interested in vtubing
+- 🌱 im currently learning school
+- 💞️ im looking to collaborate on twitch
 - 📫 cookiepi. on discord
 - 😄 Pronouns: they/it
-- ⚡ Fun fact: im a minor, yay
+- ⚡ fun fact: im a minor, yay
 
 <!---
 cookiepi-on-yt/cookiepi-on-yt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
