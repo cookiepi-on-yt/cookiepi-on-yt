@@ -1,6 +1,6 @@
 - 👋 hi, I’m @cookiepi-on-yt
 - 👀 im interested in vtubing
-- 🌱 im currently learning school
+- 🌱 im currently learning in school
 - 💞️ im looking to collaborate on twitch
 - 📫 cookiepi. on discord
 - 😄 Pronouns: they/it
