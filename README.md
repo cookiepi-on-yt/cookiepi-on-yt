@@ -1,7 +1,7 @@
 - 👋 hi, I’m @cookiepi-on-yt
 - 👀 im interested in vtubing
 - 🌱 im currently learning in school
-- 💞️ im looking to collaborate on twitch
+- 💞️ im looking to collaborate on any platform
 - 📫 cookiepi. on discord
 - 😄 Pronouns: they/it
 - ⚡ fun fact: im a minor, yay
